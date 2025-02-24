@@ -1,7 +1,7 @@
 # GC vs AOH Disstrack Timeline
 
 I will try to make this as unbais as I can.
-If anyone is interested in helping me update this timeline please contact me and i'll add all info!
+If anyone is interested in helping me update this timeline please contact me and I'll add all info!
 
 ## How it started
 It all started with Steven & Lil Stick throwing digs and Gladius, calling them snakes in our Mutiny Diss
@@ -21,7 +21,7 @@ Hellforce releases another version of Gladius On Top
 https://github.com/user-attachments/assets/713ea884-3d03-421d-81e5-5f5a9a860585
 
 # Another 2 days later
-Lil Stick releases Lil Stick - Wasteman responding to all the hate recieved from the first track he made 
+Lil Stick releases Lil Stick - Wasteman responding to all the hate received from the first track he made 
 
 https://github.com/user-attachments/assets/2cecc8d4-2250-4f91-911e-8171aa52b09a
 
@@ -70,7 +70,7 @@ Hellforce responds
 https://github.com/user-attachments/assets/59d4669f-4caf-4d7a-8e94-d683fe1aa8a3
 
 # 2 weeks later
-Hellforce didnt get the response he wanted so he tried to improve and make another track called dinosars
+Hellforce didn't get the response he wanted so he tried to improve and make another track called dinosars
 
 https://github.com/user-attachments/assets/5e987d58-3c00-456d-a89a-b2051407ba63
 
@@ -97,7 +97,7 @@ After AOH win the gang wars event they released a song and dissed GC again.
 https://github.com/user-attachments/assets/dca37c14-5ddf-4422-a815-e4b36cd8328e
 
 # 1 day later
-Lil Stick responds with a diss called Gang Wars feturing people hellforce dissed in the past
+Lil Stick responds with a diss called Gang Wars featuring people hellforce dissed in the past
 
 https://github.com/user-attachments/assets/16ddb947-23d5-4a6f-95bf-182c3fe8e9dd
 
